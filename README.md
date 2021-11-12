@@ -40,7 +40,7 @@ aomething else about this programme or whatever it is (a website?) it doesnt aut
 thats a scoreboard to show how i feel 
 ### DEFEATED
 i have no idea how im gonna save this when im done and you know what knowing my luck with technology ill probably find a way to lose this file. before i go i want to try and upload a picture 
-!![IMG_2451](https://user-images.githubusercontent.com/93921750/140976256-b48c6aba-abd2-471a-a0a1-d5e9546dd9b1.jpg)
+!!
 
 look at me go !! i can use the programme now HAHA SUCK IT TECHNOLOGY AND COMPUTING I DID IT I UPLOADED A PICTURE IT WAS SO EASY JAHAHAHAHAHAAH
 
